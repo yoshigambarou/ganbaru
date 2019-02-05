@@ -1,0 +1,2 @@
+# ganbaru
+ikigomi
